@@ -1,2 +1,2 @@
 # farhan
-creative animator 
+Graphic Designer
